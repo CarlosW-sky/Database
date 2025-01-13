@@ -2,4 +2,4 @@
 
 **Storage%Photos#Videos#Files**
 
-￥$#%Cloud Services
+￥#%Cloud Services$.
