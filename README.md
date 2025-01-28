@@ -1,7 +1,5 @@
-# Database
+# storg
 
-**Storage%Photos#Videos#Files**
-
-￥#%Cloud Services$&.
+**StoragePhotosVideosFiles**
 
 🚝🛩🌍🌎🌏🗺🏔🧭🌠☄
