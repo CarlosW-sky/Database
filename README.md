@@ -1,5 +1,5 @@
 # storg
 
-**StoragePhotosVideosFiles**
+**Files**
 
-🚝🛩🌍🌎🌏🗺🏔🧭🌠☄
+🌍🌎🌏
